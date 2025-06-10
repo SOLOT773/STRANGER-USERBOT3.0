@@ -1,4 +1,4 @@
-<p align="center"><a href="https://t.me/S_OL_O7"><img src="https://files.catbox.moe/10mj21.png"></a></p>   
+<p align="center"><a href="https://t.me/S_OL_O7"><img src="https://files.catbox.moe/e52u4b.png"></a></p>   
   
   <h6 align="center">   
      <b>• 𝗩𝗔𝗠𝗧𝗛𝗢𝗡 𝗦𝗣𝗔𝗠  </b>   
