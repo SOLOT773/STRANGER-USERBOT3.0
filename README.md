@@ -5,7 +5,7 @@
   
   
          
-   [𝗦𝗧𝗥𝗔𝗡𝗚𝗘𝗥](https://t.me/MASTIWITHFRIENDSXD)   
+   [𝗦𝗢𝗜𝗢](https://t.me/S_OL_O7)   
   
   
            ─「 𝐷𝐸𝑃𝐿𝑂𝑌 𝑂𝑁 𝐻𝐸𝑅𝑂𝐾𝑈 」─   
@@ -25,8 +25,8 @@
   
    # Pʏʀᴏɢʀᴀᴍ (V1.4) Sᴇssɪᴏɴ Sᴛʀɪɴɢ   
   
-   - [BᴏᴛLɪɴᴋ](https://t.me/SessionStringGeneratorRobot)   
+   - [BᴏᴛLɪɴᴋ](https://t.me/S_T_WBOT)   
   
-   - Bᴏᴛ Usᴇʀɴᴀᴍᴇ - @SessionStringGeneratorRobot   
+   - Bᴏᴛ Usᴇʀɴᴀᴍᴇ - @S_T_WBOT   
   
    ━━━━━━━━━━━━━━━━━━━━━━ 
