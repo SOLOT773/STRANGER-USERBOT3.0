@@ -1,7 +1,7 @@
-<p align="center"><a href="https://t.me/shiva_ansh_op"><img src="https://files.catbox.moe/r58nec.jpg"></a></p>   
+<p align="center"><a href="https://t.me/S_OL_O7"><img src="https://files.catbox.moe/10mj21.png"></a></p>   
   
   <h6 align="center">   
-     <b>• 𝗦𝗧𝗥𝗔𝗡𝗚𝗘𝗥 𝗦𝗣𝗔𝗠  </b>   
+     <b>• 𝗩𝗔𝗠𝗧𝗛𝗢𝗡 𝗦𝗣𝗔𝗠  </b>   
   
   
          
